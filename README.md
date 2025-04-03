@@ -1,5 +1,7 @@
-## Hi there 👋
-
+## Que Onda cuh ❤️‍🔥
+Trying to learn how to code to then program to one day be able to work remotely.
+I want to become one of those digital nomads and travel the world without worrying about money.
+Probably won't be on here much but I had to start somewhere.
 <!--
 **Angelz1012/Angelz1012** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
